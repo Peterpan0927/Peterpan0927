@@ -1,4 +1,3 @@
-<div align='center' ><font size='200'>Kill the boy, let the man born</font></div>
-
+# Kill the boy, let the man born
 ![](https://w.wallhaven.cc/full/6k/wallhaven-6k8kkx.jpg)
 
